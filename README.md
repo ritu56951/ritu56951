@@ -17,7 +17,7 @@ I'm an entry-level IT professional with a background in teaching and a passion f
 - Small database-driven websites  
 
 ## 📫 How to reach me:
-Email: [your email]  
+Email: ritu56951.rk@gmail.com
 Location: Montreal, QC, Canada  
 
 ## 😄 Pronouns:
